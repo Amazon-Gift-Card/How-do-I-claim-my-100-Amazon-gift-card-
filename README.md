@@ -2,7 +2,7 @@
 
 Are you interested in claiming a **$100 Amazon gift card** for free? If so, you're in the right place! In this article, we will walk you through everything you need to know about claiming your free $100 Amazon gift card, how to participate in the offer, and provide important tips to maximize your chances of success. Whether you're new to these types of promotions or an experienced pro, this guide will help you navigate the process easily.
 
-### [✅CLICK HERE TO GET NOW FREE!](https://www.fpo.go.th/main/fpo/media/FPO/allgifttodayfree.html)
+### [✅CLICK HERE TO GET NOW FREE!](https://todaysfree.xyz/)
 
 ### How to Claim Your $100 Amazon Gift Card: Step-by-Step Guide
 
